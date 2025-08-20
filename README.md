@@ -4,4 +4,4 @@
  
  Estudante de ciência da computação 
  
- Aprendendo e me apaixonado mais pela área  
+ Aprendendo e apaixonando mais pela área  
